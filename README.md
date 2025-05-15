@@ -1,1 +1,1 @@
-# exevn-smart-reception-policy
+# EXEVN Smart Reception Privacy Policy
